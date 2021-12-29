@@ -1,0 +1,1 @@
+Hello Everyone😃 I am Nimish Medatwal. I am an undergraduate student of COE branch at Thapar Institute of Engineering and Technology, Patiala ,India. Currently, I am studying in first semester.I am from Ghaziabad,Uttar Pradesh.  My github Id : https://github.com/nimishmedatwal My linkedin: https://www.linkedin.com/in/nimish-medatwal-a1235919b/.
